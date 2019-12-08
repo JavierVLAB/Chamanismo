@@ -1,7 +1,7 @@
 # Sanación 
-##Clase 1
+## Clase 1
 
-##Anatomía y Dinámica Energética Sutil Basica
+## Anatomía y Dinámica Energética Sutil Basica
 
 6 cuerpos y las 3 almas (kabala)
 
@@ -13,19 +13,19 @@ Los 3 cuerpos (son 5, la otras dos son muy elevadas)
 
 cada cuerpo genera un campo de energía o aura
 
-#####Nefesh Fsico
+##### Nefesh Fsico
 
 *  Fisico —— Sthula Sarira —— Annamaya kosha
 *  Etérico  —— Sukshima Sarira ——*  Pranayama Kosha    Cuerpo de prana
 *  Ensoñacion —*  Sukshma Sarira  ——*  Vjnanamaya Kosha  —*  Analitico y ensoñacion
 
-#####Cuerpo Etérico min 40, importante min 43 aprox
+##### Cuerpo Etérico min 40, importante min 43 aprox
 *  Doble etérico (nadis meriadianos, chakras, experiencia kundalini) Es el puente hacia el alma
 *  Cuerpo Pránico
 *  Chi
 *  Orgone 
 
-#####Cuerpo Astral
+##### Cuerpo Astral
 *  Doble 
 *  Angel de la guarda, demonio personal
 *  cuerpo de ensoñacion 
@@ -33,12 +33,12 @@ cada cuerpo genera un campo de energía o aura
 Aqui se generan los sueños, es el yo de los sueños
 se puede separar del fisico o del eterico sin problemas
 
-#####Alma min 1:25 1:35 
+##### Alma min 1:25 1:35 
 *  alma emocional
 *  alma mental  aqui esta la compacion y sabiduria
 *  aura espiritual (si alguien te tira una mala vibra entra por aqui y baja a auras mas densas
 
-#####Espiritu
+##### Espiritu
 *  esta en el canal central en la gota del corazon. Tigle o gota de conciencia
 
 muy bueno, meditar contemplativamente en el centro del pecho, esto integra todos los cuerpos
@@ -57,7 +57,7 @@ en tantra shivista 20 tantos
 5. Diferentes fuentes de energia Curativas
 6. desarrolla tu energia Curativas
 
-###Cuidando la energía
+### Cuidando la energía
 Biología
 
 - Respiración
@@ -80,7 +80,7 @@ Biología
 * carne vieja, verduras enlatadas
 hay que fluir la energia
 
-####Donde gastas energia
+#### Donde gastas energia
 
 * lo que te ensucia       
 * gente que te chupan energia
@@ -90,7 +90,7 @@ hay que fluir la energia
 * deseos insatisfechos
 * pelearnos con la vida, no aceptando la vida
 
-####Cosas que limpiam 2.11
+#### Cosas que limpiam 2.11
 
 * Expresar emociones reprimidas
 *  pensamientos positivos
@@ -100,7 +100,7 @@ hay que fluir la energia
 * camino espiritual        * vivir lugar limpio
 * comida alimentos energia fresca y limpia
 
-####Cosas que equilibrian
+#### Cosas que equilibrian
 
 *  todo lo que limpia
 *  lugares donde hay mucha agua corriendo, mar con olas, rios etc
@@ -112,7 +112,7 @@ hay que fluir la energia
 *  ir al baño solo cuando hay ganas
 *  Estar solo de vez en cuando
 
-####Todo lo que fortalece:
+#### Todo lo que fortalece:
 
 * lo que limpia y equilibra fortalece
 * ejercicio fisico
@@ -131,7 +131,7 @@ hay que fluir la energia
 *  observar la sincronia divina
 *  amar esa sincronia divina y amarnos en ella 
 
-####Manera de medir y diagnosticar 2:18 min
+#### Manera de medir y diagnosticar 2:18 min
 
 * sentir psiquicamente, mas importante
 * Zahorismo? uso de instrumentos?? pendulo
@@ -198,7 +198,7 @@ El fundamento para desarrollar la energía:
 * Tambien puedes formar esferas de enrgia, mover energia
 * Cuando las manos y los pies estan bien abiertos, la energía negativa fluye hacia el suelo (tierra). La Apana (energía) empuja la energía hacia los pies, genitales y ano. Tambien creamos mas arraigo con la energía de la tierra, esto estabiliza fisicamente, psicologicamente, etc
 
-####Ejercicios: 
+#### Ejercicios: 
 
 1. Abrazando el arbol: esta posicion abre los 5 chakras manos pies y abre la microorbita que armoniza el yi y yan. Tambien se genera una bola de chi, que ayuda a despertar la capacidad de sentir la energía entre las manos
 2. Abrazando al universo: traes la energía del universo a ti. Nos abrimos al universo Acumulamos energía en el vientre bajo. Esta energía puede ser usado para sanación, meditación (min 52)
@@ -212,7 +212,7 @@ El fundamento para desarrollar la energía:
 * ver pdf 
 
 
-###Desarrollar la energia, ejercicios, juego etc
+### Desarrollar la energia, ejercicios, juego etc
 
 - primero es sentir la enrgía
 - Luego sentir energía de flores, plantas, animales, personas, al principio empieza con seres sanas y agradables
@@ -227,7 +227,7 @@ El fundamento para desarrollar la energía:
 - Tratar de detectar de cabeza a pies, tratar de detectar irregularidades (min 1:27) 
 
 
-##Limpias Basicas (min 1:31)
+## Limpias Basicas (min 1:31)
 
 - Tu energía debe estar limpia, te mantiene en equilibrio, energía negativa contribuye con desequilibrios y enfermedades debelitimianto dificiles de mejorar
 - Energeticamente hablando, tener los chakras manos y pies abiertos, la energía se desplaza hacia afuera. Idealmente caminar descalzo, mejor sobre tierra y arena, la tierra jala la negatividad
@@ -235,9 +235,9 @@ El fundamento para desarrollar la energía:
 - El sonido HO en chikung, ayuda a eliminar el chi estancado por el meridiano del corazón. Decir HO por la mañana 24,36 o 40 veces, saca esa energía, mejora el aliento
 - Al bañarte abrir las manos (frotarlas) y limpiarte energeticamente, sacudirlas en el agua
 
-###Limpieza para otros:
+### Limpieza para otros:
 
-###Barridos
+### Barridos
 
 1. *Con las manos*: Pasas las manos, sientes, chupas un poquito, barres y sacudes las manos en agua o hacia un hueco profundo de la tierra. Puedes hacer la capa externa y la capa interna tocando un poco el cuerpo. Ayudas con el mantra Hrim. *Consejo probar cuando duele la cabeza, tocas la cabeza, chupas un poquito y sacudes las manos, latigo*. Se puede practicar con gente, con objetos, etc
 2. *Con plantas*: Ramo de flores de aroma. (el aroma es bueno cuando se maneja energía, el aroma físico llega hasta el alma). Cuando tomas el ramo, este se convierte en una extension de tu energía. Conseguir las plantas, ver cuales tienes mejor afinidad a tu energía, hacer mezclas.
@@ -249,20 +249,20 @@ Romero |  Inojo | Eucalipto |
 Cedrón|  Albahaca |  Poleo|
 Alcachofa|  Manzanilla | Yerba buena |
 
-###Cortes
+### Cortes
 
 Cuando el barrido no es suficiente o cuando se siente que es muy denso se usa el corte, esto rompe la estructura de la negatividad y luego se vuelve a barrer. Tambien tiene significado de cortar obseciones, adiciones, creencias, codependencias, relaciones. es un manejo simbolico. Estos tambien extienden nuestra energía.
 
 - Cuchillos, Espadas, Tijeras
 
-###Purificaciones
+### Purificaciones
 
 Creas un impulso de transformación al sistema energetico de la persona
 
 1. *Humo*: humo generado de hierbas con facultadas sanadoras, en carbones al rojo vivo, no flamente. Se pueden convinar la plantas de barrido. (Receta inciencio Jerusalen ?????). Pasamos el humo por el cuerpo y cuerpo energetico de la persona, se puede pasar por una habitacion para purificar el espacio. No es sufieciente el humo solo, hay que usar tu voz, tu aliento ingrediente magico. min 1.57 Puedes Orar, Canto de poder, poesia de purificación, decretar afirmaciones, o simplemente soplar el humo. tu aliento. Una buena purificacion puede barrer y cortar por si sola, y ademas dar protección  
 2. *Fuego*: Puede ser vela, lampara alcohol, cuchillo flamaente. El fuego es catalizador, transformador. Aqui el poder magico viene de tu intento
 
-###Limpia de huevo
+### Limpia de huevo
 
 - El mejor huevo es el que provenga de una gallina negra. Tiene mas capacidad de energía. El huevo de pato tambien es bueno
 - El estado coloidal que tiene el huevo es mucho mas podereso que incluso el agua
@@ -296,9 +296,9 @@ Creas un impulso de transformación al sistema energetico de la persona
 
 --------------      
 
-###Clase 3
+### Clase 3
 
-###Protecciones
+### Protecciones
 
 Cada vez que haces una limpia es bueno hacerle una protección para que no se vuelva a pegar nada similar, sobretodo en los dias posteriores 
 
@@ -315,9 +315,9 @@ Cada vez que haces una limpia es bueno hacerle una protección para que no se vu
 7. Mantras. Los mantras necesitan iniciacion. Los semilla no, ej OM. HUM (este mejor para romper negatividad) HRIM activa la energía. PAT parar el mundo, la menta
 8. Oracion. Pides a un poder mas grande que tu. invocas a una presencia
 
-####Hierbas
+#### Hierbas
  
-#####Proteccion de Casa
+##### Proteccion de Casa
 
 Hierbas: Angelica, Sal Negra, Betonica, Stachys Officinalis, Comino, Sauco, Ruda. Se puede poner un polvito en la orilla de la pared. cercano a puertas o ventanas
 
@@ -325,32 +325,32 @@ Las plantas pueden funcionar solas, pero siempre es bueno curarlas, se le da una
 
 El mejor metal es el oro, el siguiente plata. El acero es buen conductor de energia
 
-#####Proteccion alrededor de casa, plantadas o secas
+##### Proteccion alrededor de casa, plantadas o secas
 
 Es bueno plantar ciertas vivas
 
 Ej: Ruda, Sabila, FResno, Roble, Espino, Hinojo
 
-#####Bolsa de Proteccion
+##### Bolsa de Proteccion
 
 Galangal, Agrimonia, Anis (mejor estrella). Bolsita de material conductor: Algodon, Cuero, Seda. Lona gruesa de algodon. Combinar estas tres, proteje de todo. Se usa cerca de la piel. Es un talisman simple. Una bolsa sin mojarse, puede durar 3 meses, hasta casi un año si le pones poder.
 
-#####11 Ingredientes del Incienso de Jerulasen
+##### 11 Ingredientes del Incienso de Jerulasen
  revisar esto si lo necesitas.
 
-#####Incienso Limpiar y proteccion
+##### Incienso Limpiar y proteccion
 Muy bien seria Salvia, Asafetida, esta es buena cuando te hacen algun trabajo negativo
 
-#####Proteccion para Soñar y Ensoñar
+##### Proteccion para Soñar y Ensoñar
 Bolsita: Lavanda, Anís, Hierbabuena, Betónica. Estas tambien ayuda en la claridad de soñar.
 
-#####Plantas Luminosos
+##### Plantas Luminosos
 Con estas  plantas se puede desarrollar una comunicacion con su espiritu. Estos se pueden convertir en guardianes mas complejos
 
 Floripondio, Cactus de San Pedro, Peyote.
 
 
-###Diferentes fuentes de Energías Curativas
+### Diferentes fuentes de Energías Curativas
 
 1. Agua viva y Iones Negativos
 2. Sol ( Yang )
@@ -374,7 +374,7 @@ Maquina de Chi?¿?¿?¿?¿?
 
 ## Energías budicas 
 
-###Clase ???
+### Clase ???
 
 La idea es usar las energías budicas, estas energías benefician al sanador, no solo al sanado. Una de estas prácticas por si sola te puede iluminar.
 
@@ -385,7 +385,7 @@ Se puede hacer sanación con muchos budhas, todos tienen la misma capacidad, eje
 *  Rescate de alma
 *  Tonglen
 
-###Tara Blanca
+### Tara Blanca
 Energía muy bonita, muy cuidadora
 tara verde.  especialidad sana el miedo y amarilla dinero, roja sexualidad?
 Si quieres sanar todo mejor tara verde
@@ -444,7 +444,7 @@ Karma lo importante es la sabiduria potencial que trae
 
 ## Clase
  
-###Tara Blanca (continuacion)
+### Tara Blanca (continuacion)
  
 En esta tecnica movemos energia al canal central y al termnar la sacamos de alli transformada
  
@@ -454,13 +454,13 @@ En la tecnica bajamos el pana y subimos el apana, que es lo contrario a lo norma
 
 Con la energia simpre es importante la fluidez movimiento,  nada de extancamiento
 
-###Amitayus
+### Amitayus
 
 Encencialmente es Amithaba. Es muy bundadoso, no es exigente y apoya mucha vitalidad y longevidad para liberarte.
 
 El plano de Amitayus acepta a gente no liberada para que vayas a liberarte
 
-> ###Practica Amitayus
+> ### Practica Amitayus
 > 
 > Tenemos tres niveles a medida que vas mejorando => Revitalizar => Sanar =>Longevidad. Es una practica que vas llenando cada nivel de tu vida. Es mejor hacerla en tu hora de nacimiento, o en los horarios de cambios de ciclos.
 > 
@@ -490,7 +490,7 @@ El plano de Amitayus acepta a gente no liberada para que vayas a liberarte
 
 Las practicas energeticas, chikun, esta y otras puede ayudar hacerlas en el amanecer o el atardecer porque cambian los elementos y te puede dar un empuje...
 
->####Longevidad Tara y Amitayus
+>#### Longevidad Tara y Amitayus
 >
 >Recuperando Vitalidad
 >
@@ -509,7 +509,7 @@ Las practicas energeticas, chikun, esta y otras puede ayudar hacerlas en el aman
 
 recordar **Om tare tuttare ture mama ayuh punya yana pushtim kuru ye soha**
 
->####Incrementar la Vida
+>#### Incrementar la Vida
 >
 >En esta practica pedimos a Amitayus que nos purifique, el nos hace una transformación de sus elementos puros hacia nosotros
 >
@@ -532,7 +532,7 @@ Adishakti es la energia primordial, y yoanchi, es  la cualidad de adishakti que 
 
 Buscar una tecnica similar al chikun 6 sonidos
 
-> ####Incrementar Buena Fortuna
+> #### Incrementar Buena Fortuna
 > 
 > Traemos el buen karma desperdiciado y que no se va a usar de otros
 > 

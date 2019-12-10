@@ -182,14 +182,50 @@ Mudra tocar dedo medio y abrir los dedos, los demas mudras son cerrados
 Gram Madre del Espacio, *Tara Akaha Devi*
 
 
+*****
+
+### clase 10 Dic
+
+## Mahakala Blanco
+
+Mahakala = vajrayana pero viene del tantra hinduista como una forma de Shiva, el destructor de todos los tiempos
+
+Mahakala aparare cuando el practicante tiene conflictos adiciones y no puede crecer de una manera bonita como chanresi. Simbolo arquetipico de transformacion, tratamos de rescatar nuestra sombra. 
+
+Chenresi arquetipico masculino que representa una energia de Visnu, energia bonita, todo guay. Mahakala surge de las lagrimas de Chanresi.
+
+Mahakala, las energias iracundas tienen la capacidad accion iluminada de transformacion en el mundo
+
+Tambien sana cosas de nuestras encarnaciones
+
+No es necesario una transmision
+
+Usamos el mantra *Om Mani Padme Hung*, se puede visualizar la luz blanca de Chenrezi y das una bendicion para un animal muerto, por ejemplo
+
+Se puede hacer
+
+Un deseo vivido con consciencia genera significado 
 
 
-
-
-
-
-
-
+>### Práctica
+>
+>* visualizamos a Chenrezing, blanco transparente 16 años, lleno de amor y compasion incondicional. 
+>
+>* trabajamos varios tingles, gotas. 
+>
+>* visualizamos las 6 gotas en el canal central de Chenrezing y haces una resonancia entre sus gotas y las tuyas
+>
+>* cada mantra en cada gota crea un fogonazo de luz y se expande a todo el universo, tambien hay fogonazo en tus gotas, no como el que no somos el
+>
+>* visualizas que cada mantra genera la luz y la luz va a todos los universos de cada plano, esto lo hace chenrezing, al mismo tiempo tu vas sanando tus planos, soberbia, deseos, etc. Las primeras veces crea tu soberbia, ignorancia, deseos, etc, por un ratito mientras repites la silaba. llevalo un rato disfrutandolo, y sintiendo que te va ligerando. Pon le mas presencia. al final puedes repetir todo el mantra para unificar la luz
+>
+> * al final haces un Hung corto y te conviertes en Chenrezin
+> 
+> * Con otro Hung te conviertes en Mahakala Blanco, manifiestate como el aqui enpieza la practica
+> 
+> * En tu pecho hay un mantra *OM GURU MAHAKALA HA RI NI SA SIDHI TZA*
+> 
+> 
 
 
 

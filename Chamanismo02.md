@@ -99,13 +99,104 @@ Jaguar desarrollar poder personal y cualidades humanas
 
 #### Extra Cruza de Oro
 
-Esto no tiene espiritu pero tiene una "Esencia" 
+Esto no tiene espiritu pero tiene una "Escencia" 
 
 Conseguir un objeto de oro de la mejor calidad posible. Laminita, lo mas puro. Luego hay que limpiar la energía del objeto.
 
 Tu vision quieres empujar la escencia del oro a la persona. no es necesario el aceite, pero se puede hacer igual que anteriormente
  
+ 
+Pregunta: asi como no es bueno bañarse despues de un trabajo energetico, una cruza etc, por un dia, tampoco es bueno sexo antes de un dia despues porque esto diluye las energias
+ 
+---------
 
+### Clase 18 Dic
+
+3 principios de la creacion Trika Shaivismo
+
+* KamaKala: Deseo Divino, Intento divino, Logos, Providencia, Fuente de Gracia, la voz de Paramashiva (dios, lo que esta mas alla de shiva).
+* Shatki. Energia, poder, la madre, el primer discipulo, el reflejo donde la luz de shiva reposa 
+* Shiva. Ser interno, Conciencia, el Padre, el primer elemento puro de la creacion, la luz
+
+El chamanis es movimiento de shakti, porque se mueve la energia, mientras shiva en la presencia de observación 
+
+la danza de la shatki son todos los fenomenos
+
+de shatki salen 5 shaktis primordiales, que son las mismas 5 dakinis de los elementos
+
+* Chit Shakti: Poder de ser conciente, madre azul Vajravahai, Akash. YO SOY
+* Ananda Shakti: Poder beatitud, armonia gozo, Madre Verde, Samaya Tara Aire. YO DOY
+* Ichha Shakti: Poder intento y voluntad. Roja, Fuego. YO PUEDO
+* Jnana Shakti: Poder conociemiento Blanca Agua, YO SE
+* Kriya Shakti: Poder Accion Tierra. YO HAGO
+
+Como tienes las 5 shaktis?
+
+3 Tendencias en tantra
+
+* Vama: Izquierdo, placentero, benigno, chueco, aqui es importante el ritual y los objetos de poder externos. se enfatiza en la experiencia en el cuerpo
+* Dakshina: Derecha, sur, capaz, pago al guru, Samaya, estoy contigo enfatiza la experiencia interna
+* Mishra: mezcla de las dos anteriores
+
+Poder Personal
+
+
+## Chiking del tercer ojo
+
+el tercer ojo en realidad es un conjunto formado por los ojos, la pienal, la cueva de brahma, el chakra anan chakra, la gota o tingle, tambien hay una adara, centre de acumulacion de energia.
+
+### TAIYIN JIN HUA ZHONG ZHI
+
+Primera parte
+
+1. Abriendo el ojo celestial: Sentado viendo la luz espiritual, me imagino que se extiende mi vision lejos lejos lejos lejos lejos, hasta el origen de la creacion, el chi primordial, la naturaleza budica, mejor en penumbra o oscuridad. Tu intencion es ver la luz primordial. Despues de un rato esa luz regresa entra y baja al caldero, tantien, acompaño eso tragando saliva. Ahora esa luz esta alli. Ahora hago Respiración inversa saca el vientre al exhalar, etc. empiezo suavemente y luego mas profundo hasta que se muevan los genitales y al mismo tiempo imagino que la luz se hace mas fuerte. 
+2. Despues de un rato, imagino que los poros, la piel inspira esa luz primordial.
+3. Cuando empiezo a sentir que el vientre bajo se calienta, al inhalar bajo la energia del caldero medio, del pecho baja y al exhalar sube del vientre al pecho, aqui la respiracion suave.
+
+esto como 20min
+
+Segundo paso, no pasar aqui si no hay calor
+
+desde el paso anterior, ahora tienes respiracion normal relajada, haces igual que antes traes la luz primordial a dentro de tu cabeza, y buscas ver luz con los ojos cerrados
+Luego me imagino un espejo de 8 lados atras de la cabeza, y llevas esa luz hacia el espejito, luego lo llevas a la cueva caldero celestial y luego lo llevas de nuevo a la luz primordial, esto lo haces varias vece s
+
+al final, la luz que debe ser mas clara la tragas con salivacion, al tantien y terminas con la luz en el vientre.
+
+
+## Clase enero 2020
+
+importantisimo, no darle importancia absoluta a las experiencias psiquicas.
+
+Tecnica:
+
+Saturas tu vision con un color (miras por unos minutos una luz teneu) y luego intentas ver la energia en las cosas y gente, pones una luz detras de la persona con un fondo blanco o oscuro, y tratas de no enfocar nada en particular
+
+probar mover los dedos e ir abriendo los brazos
+
+Decreto
+
+### Espejo Magico
+
+- conseguir un espejo bonito, o un espejo de metal o de piedra, puede ser de obsidiana, por ejemplo. Exclusivo para esta practica
+- siempre que manejas un objeto es bueno que el objeto sea afin, que te guste, pero hay que no apegarse a los objetos de poder.
+- Limpiar el espejo de energia
+- antes de trabajar con el espejo hacer chikung para activar la energia, luego de usar el espejo masajearce como al final del chikung
+
+
+### Chi Kung de la Tela Blanca
+
+una tela blanca 49 dias cada vez
+
+### Espejo de Arena
+
+la luz del gi pega muy bien en el tercer ojo
+
+### terapia autogenica para el tercer ojo
+
+
+
+
+ 
 
 
 

@@ -228,6 +228,98 @@ Un deseo vivido con consciencia genera significado
 > 
 
 
+## Clase 14 enero
+
+respuesta anterior
+
+- Observacion = ejercitando la consciencia, darse cuenta
+- Meditacion = modulando y purificando la consciencia 
+- Contemplacion = descansar en la conscienca natural (búdica)
+- Integración = unificando la consciencia y los fenomenos
+
+
+## Vaso de tesoro
+
+Ofrendamos a la tierra, para ciertos beneficios de paz y prosperidad
+
+Ayudamos a sanar la armonia de un lugar fisico
+
+Chalice Well en Glastonbury lugar de poder
+
+Para sanar un lugar se necesita tener en cuenta:
+
+- los 5 elementos, como estan los elementos equilibrados
+- si hablamos de sanar la tierra, hacemos un vaso de tierra, si hablamos de sanar otras cosas, hablamos de un vaso del tesoro, uno se entierra y el otro no
+- armonia astrologica
+- quienes viven alli, no solo las personas fisicas, sino el bicherio que vive o que vivio antes alli
+
+
+importante, si tienes dudas en tu mente la metes en tu magia
+
+#### Preparacion 
+
+- Reunir lo ingredientes
+- Elegir el tipo de yidams
+- Como preparlo
+
+Escoger un dia especial (luna llena por ejemplo), empezar a trabajar antes de la puesta del sol y terminar ya de noche para que ambas energias esten presentes
+
+la ceramica esta bien por ser ecologica
+
+si puede usar yidam de los elementos, tara blanca, mahakala, incluso juntas
+
+ingredientes: 
+
+- olla pequeña de ceramica con tapa, podria ser de madera
+- bolsita con 9 gemas de los planetas
+- 7 tipos de semillas secas de diferentes colores ( que no esten secas, pueden introducir humedad) una o dos semillas de cada tipo
+- minerales lo mas naturales y puros posibles. ejemplo, arena de mar, tierra montaña, sal de los himalayas, tierra de lugares de poder, se pueden poner piedras tambien
+- una botellita de cristal con algun agua de manantial, etc, preferiblemente sagrada. puede ser agua de lluvia. la mas pura posible.
+
+Todo debe estar muy limpio
+
+Antes del dia del trabajo, hay que limpiar energeticamente todos los elementos
+
+- se puede usar una mezcla de flores de bach en el agua
+- Rinchen puedes colocarle, pildoras tibetanas
+- poner algunos metales, cobre, plata, oro, 
+- ramito de yerbas curativas y una hebrita totalmente secas
+- 2 pares de listones de 5 colores de los elementos
+
+planetas y sus piedras
+
+- rubi, sol
+- perla, luna
+- coral rojo, marte
+- esmeralda, mercurio
+- zafiro amarillo, jupiter
+- diamante circonita, venus
+- zafiro azul, saturno
+- hessonita o granate, Rahu
+- ojo de gato, ketu
+
+ver los mantras para los planetas
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
